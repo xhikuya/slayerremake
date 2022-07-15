@@ -1,1 +1,1 @@
-say lmao
+say no hoes
